@@ -1,0 +1,1 @@
+# Squama_Stock_Demo
